@@ -16,8 +16,8 @@ I am an Graduated Msc. Computer science From Savitribai Phule Pune University. J
   - Next JS
 - 👯 I’m looking forward to collaborate on open source projects.
 - ✔ Ask me about anything, I am happy to help, only if the ball is in my court!😉<br>
-- Outside tech, 📖 I love to play cricket, 🎵 listen to music, and 🌴 explore nature outdoors.
-- 📫 Reach out to me at: <a href="https://www.linkedin.com/in/shivtej-sonawane-547268188/">Shivtej Sonawane</a>
+- Outside tech, 🏏 I love to play cricket, 🎵 listen to music, and 🌴 explore nature outdoors.
+- 📫 Reach out to me at:  <a href="https://www.linkedin.com/in/shivtej-sonawane-547268188/"> Shivtej Sonawane </a>
 
 
 
